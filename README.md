@@ -3,7 +3,7 @@
 
 
 ## Hello Halline Gomes here !
-Student of ADS/IFTM Campus Patrocínio ![image](https://github.com/user-attachments/assets/0777a0f6-b507-4817-b48a-442008d211b2)
+Student of ADS
 
 Passionate about technology, travel, animals, food and Movies.
  
